@@ -1,11 +1,1 @@
-${\color{#2C115E}\text{ᥲ𝚛𝚝ട ω𝑒𝚛𝑒 𝘧𝘰𝚞ռԁ 𝘰ռ}}$ ${\color{#B7375E}\text{ƥ𝚒ռ𝚝𝑒𝚛𝑒ട𝚝, 𝙲𝚛𝑒ԁ𝚒𝚝ട 𝚝𝘰 𝚝Ꚕ𝑒𝚒𝚛}}$ ${\color{#FFE8CE}\text{𝚛𝚒𝚐Ꚕ𝚝𝘧𝚞Ι 𝘰ωռ𝑒𝚛ട.}}$
 
-![](https://files.catbox.moe/5ux7pb.png) ⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀
-${\color{#2C115E}\text{𝑨𝒍𝒍}}$ ${\color{#B7375E}\text{𝑨𝒃𝒐𝒖𝒕}}$ ${\color{#FFE8CE}\text{𝑼𝒔}}$⠀⠀⠀⠀⠀⠀ ⠀
-
-${\color{#FFE8CE}\text{wip.}}$
-
-![](https://files.catbox.moe/vuvun3.png)
-
-![](https://files.catbox.moe/nz0gsh.png)
