@@ -4,9 +4,9 @@
   i'm known as mayo, courtsey to xen's given inessential nickname. i prefer nyox though
 
 <p align="center">
-c*h allowed only when specified . + . please w2i as much as possible
+c*h allowed only when specified. And please w2i as much as possible.
 
 <p align="center">
-i'm very shy and don't talk much, so expect some awkward moments when talking w me
+I barely open pt but expect me online around fridays-sundays.
 
 check [my strawpage](https://thefighter.straw.page) to learn more.
